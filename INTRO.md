@@ -1,1 +1,1 @@
-A short introduction about your team
+Oceanview is a blockchain enthusiast with 10 + years of IT experience, application triage, governance and sustainability. I have passions for photography, the link between health diet and behavior, and in support of futuristic ideas that provide convenience or efficiency to the masses. TRX is the next backbone and vehicle of change!
