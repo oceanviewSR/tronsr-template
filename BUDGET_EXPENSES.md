@@ -1,1 +1,1 @@
-Supply a clear budget line.
+We will remain lean though the remainder of 2018, there have been cycles of feast and famine cycles throughout history, the same applies to crypto. Sustainably for the future is more important than immediate rewards, I am a big believer in under promise and over deliver. In 2018 net proceeds will only be used to scale up, net profit will be frozen. Once a surplus is in place I would love to fund a few projects in my areas of interest.
