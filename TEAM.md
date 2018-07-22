@@ -3,4 +3,4 @@
 ### Name: oceanview
 ### Role: crypto catalyst
 
-Steamit: https://steemit.com/@oceanview
+Twitter: https://twitter.com/oceanviewsr
