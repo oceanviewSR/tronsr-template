@@ -1,4 +1,4 @@
-## Founder
+Founder
 
 Name: oceanview
 Role: crypto catalyst
